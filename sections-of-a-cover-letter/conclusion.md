@@ -1,6 +1,4 @@
-In closing, I am excited about the prospect of working at ABC. Should you have any questions, please contact me on 212.123.4567, or via email on ed@bob.com.
+In closing, I would be delighted to discuss further points related to the JOB role. Should you wish to discuss those points, please reach out on PHONE or via email on EMAIL.
 
-Respectfully yours,
-Respectfully,
-Cordially,
+Respectfully yours OR Respectfully OR Cordially,
 NAME

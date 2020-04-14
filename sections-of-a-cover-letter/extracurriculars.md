@@ -1,1 +1,1 @@
-I have worked hard at maintaining a GPA of 3.5 while working full-time at ABC.
+In addition to my academic schedule, I am also a member of GROUP/ACTIVITY. I have learned much about collaborating with others as a member of GROUP/ACTIVITY.
