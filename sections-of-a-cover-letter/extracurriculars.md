@@ -1,1 +1,1 @@
-In addition to my academic schedule, I am also a member of GROUP/ACTIVITY. I have learned much about collaborating with others as a member of GROUP/ACTIVITY.
+In addition to my academic schedule, I am also the treasurer of the University of Hartford Computing Club. I have learned much about collaborating with others and being in a leadership through this club.
